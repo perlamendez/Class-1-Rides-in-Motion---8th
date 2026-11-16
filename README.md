@@ -16,5 +16,4 @@ Your cover must include:
 8. Global context: Globalization and sustainability
 
 Pencil or pen is fine. Color is NOT optional.
-Remember: paste AND keep R1 and R2 in your notebook. You will use them all unit.
-If you miss this class, you are still responsible for completing your cover.
+Remember: paste AND keep R2 in your notebook. You will use them all unit.
